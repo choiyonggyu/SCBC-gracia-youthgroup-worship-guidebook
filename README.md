@@ -1,1 +1,0 @@
-# SCBC-gracia-youthgroup-worship-guidebook
